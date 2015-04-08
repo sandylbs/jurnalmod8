@@ -1,1 +1,0 @@
-# jurnalmod8
